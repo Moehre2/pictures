@@ -1,2 +1,2 @@
-# pictures
-All 182 screensavers on your Amazon Fire TV retaken
+# My picture project
+As a teenager I was really inspired by watching the screensavers of our Amazon Fire TV. I often wondered how these places look in real life and what else there is to see... After finding [this](https://amazonfiretv.blog/all-182-screensavers-on-your-amazon-fire-tv-and-their-locations-photos-71e9f756067f) resource, I decided to travel to every destination in those pictures and retake them with my own camera. Enjoy.
